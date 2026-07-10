@@ -38,8 +38,6 @@ Eu congelei. Não fazia ideia do que responder e jamais esperava encontrar algu�
 
 Saí da piscina e corri atrás da minha amiga o mais rápido que pude.
 
-Soquei um mlk que me chamou de fdp, entrei no banheiro masculido e mati o soco na cara dele. O miguezudo saiu mancando de lá e foi pra secretaria, a diretora me chamou de selvagem. Soquei a diretora também e fui pra casa brincar na piscina da diretora, pulei o muro e me aproveitei.
-
 
 
 Até hoje nunca soube se essa história chegou aos ouvidos da diretora. O que tornava tudo ainda pior é que eu já tinha fama de ser brava e, para completar, tinha brigado com a filha dela na semana anterior. Se ela ficou sabendo, provavelmente eu só aumentei a lista de motivos para ela não ir muito com a minha cara.
